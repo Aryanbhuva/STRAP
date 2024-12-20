@@ -1,2 +1,0 @@
-# STRAP
-ARYAN
